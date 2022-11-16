@@ -6,6 +6,3 @@ Hey! Have a nice day. 😊
 - Scottish Fold
 - Munchkin
 - Himalayan Cat
-
-_config.yml.
-theme: primer
