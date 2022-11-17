@@ -15,6 +15,7 @@ Dedicated to that one time I got bit by one of my pet kittens 🥲
 	![alt text](https://mediaproxy.salon.com/width/1200/height/675/https://media.salon.com/2022/05/cats-party-0516221.jpg)
 # More Feeling!!!
 Cats are very expressive. You can tell what your pet is feeling just through body langauge. The following are some examples:
+
 1. Nervous Cat 😨
 	![alt text](https://www.catsbest.eu/wp-content/uploads/katze-angst-e1607348248612.jpg)
 2. Relaxed Cat 😪
@@ -43,3 +44,4 @@ For more GIFs of the small hairballs:
 ## [`Kittens`](https://tenor.com/search/baby-kitten-gifs)
 Just some balls of floof (and chaos lmao) doing their thing:
 <iframe width="560" height="315" src="https://www.youtube.com/embed/vGlAgdSjmkE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+There's just no dull moment with them, huh? 🥹 But, that's the fun in owning cats or any other pet really. We as their owners should always take the time out of our day to clean them when they got dirty, teach them tricks, play and accompany them, as well as shower them with lots of treats 😋 and love 🥰.
