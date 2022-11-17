@@ -13,7 +13,7 @@ Dedicated to that one time I got bit by one of my pet kittens 🥲
 - British Longhair
 
 	![alt text](https://mediaproxy.salon.com/width/1200/height/675/https://media.salon.com/2022/05/cats-party-0516221.jpg)
-## More Feeling!!!
+# More Feeling!!!
 Cats are very expressive. You can tell what your pet is feeling just through body langauge. The following are some examples:
 1. Nervous Cat 😨
 	![alt text](https://www.catsbest.eu/wp-content/uploads/katze-angst-e1607348248612.jpg)
