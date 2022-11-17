@@ -40,6 +40,6 @@ Cats are very expressive. You can tell what your pet is feeling just through bod
 Aren't they the cutest? 🥺
 
 For more GIFs of the small hairballs:
-# [`Kittens`](https://tenor.com/search/baby-kitten-gifs)
+## [`Kittens`](https://tenor.com/search/baby-kitten-gifs)
 Just some balls of floof (and chaos lmao) doing their thing:
 <iframe width="560" height="315" src="https://www.youtube.com/embed/vGlAgdSjmkE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
