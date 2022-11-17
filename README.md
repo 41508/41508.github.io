@@ -6,6 +6,9 @@ Dedicated to that one time I got bit by one of my pet kittens 🥲
 - Scottish Fold
 - Munchkin
 - Himalayan Cat
+- Ragamuffin
+- Snowshoe Cat
+- British Longhair
 
 	![alt text](https://mediaproxy.salon.com/width/1200/height/675/https://media.salon.com/2022/05/cats-party-0516221.jpg)
 
