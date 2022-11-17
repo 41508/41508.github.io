@@ -34,9 +34,11 @@ Cats are very expressive. You can tell what your pet is feeling just through bod
 9. Annoyed Cat 😤
         ![alt text](https://static01.nyt.com/images/2019/05/19/world/17grumpycat-1/17grumpycat-1-videoSixteenByNine3000.jpg)
 > **The Smaller Version** 🫶🏼
-If you taught the adults were enough of a handful, wait till you have kittens 😄👍
+
+> If you taught the adults were enough of a handful, wait till you have kittens running around in the middle of the night 😄👍
         ![alt text](https://psychicblaze.com/wp-content/uploads/2022/04/1-kittens-indoors.jpg)
 Aren't they the cutest? 🥺
+
 For more GIFs of the small hairballs:
 # [`Kittens`](https://tenor.com/search/baby-kitten-gifs)
 Just some balls of floof (and chaos lmao) doing their thing:
