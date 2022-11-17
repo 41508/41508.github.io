@@ -44,4 +44,5 @@ For more GIFs of the small hairballs:
 ## [`Kittens`](https://tenor.com/search/baby-kitten-gifs)
 Just some balls of floof (and chaos lmao) doing their thing:
 <iframe width="560" height="315" src="https://www.youtube.com/embed/vGlAgdSjmkE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 There's just no dull moment with them, huh? 🥹 But, that's the fun in owning cats or any other pet really. We as their owners should always take the time out of our day to clean them when they got dirty, teach them tricks, play and accompany them, as well as shower them with lots of treats 😋 and love 🥰.
