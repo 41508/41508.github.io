@@ -36,7 +36,7 @@ Cats are very expressive. You can tell what your pet is feeling just through bod
         ![alt text](https://static01.nyt.com/images/2019/05/19/world/17grumpycat-1/17grumpycat-1-videoSixteenByNine3000.jpg)
 > **The Smaller Version** 🫶🏼
 
-> If you taught the adults were enough of a handful, wait till you have kittens running around in the middle of the night 😄👍
+> If you taught the adults were enough of a handful, wait till you have kittens running around, meowing in the middle of the night 😄👍
         ![alt text](https://psychicblaze.com/wp-content/uploads/2022/04/1-kittens-indoors.jpg)
 Aren't they the cutest? 🥺
 
