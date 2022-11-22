@@ -1,7 +1,7 @@
 # Welcome to My Cat Appreciation Website - 41508.github.io
 Where cat lovers alike can stay and chill 😌
 
-Dedicated to that one time I got bit by one of my pet kittens 🥲
+Dedicated to that one time I got bit by one of my pet kittens ಥ_ಥ
 # My *Favorite* Cat Breeds 🐱
 - American Wirehair
 - Ragdoll
