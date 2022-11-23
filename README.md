@@ -20,7 +20,7 @@ Dedicated to that one time I got bit by one of my pet kittens ಥ_ಥ
 | You'll have a very peaceful morning because most cats are asleep during the day. | Get ready for them running and pushing things off counters and tables at 12 am. |
 | A cat's purring can reduce anxiety.                                              | Your pet may bite or scratch you when you try to pet it.                        |
 | They are independent as well as low maintenance.                                 | They act like you're living in THEIR house.                                     |
-| Cats make great apartment pets.                                                  | Cats are extremely lazy and most are aquaphobic.                                |
+| Cats make great apartment pets.                                                  | Cats are extremely lazy and most are aquaphobic so good luck giving them a bath.|
 
 # More Feeling!!!
 Cats are ==very expressive.== You can tell what your pet is feeling just through body langauge. The following are some examples:
