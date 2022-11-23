@@ -13,10 +13,15 @@ Dedicated to that one time I got bit by one of my pet kittens ಥ_ಥ
 - British Longhair
 
 	![alt text](https://mediaproxy.salon.com/width/1200/height/675/https://media.salon.com/2022/05/cats-party-0516221.jpg)
-Pros and Cons of Having A Cat
-| Pros | Cons |
-| ---- | ---- |
-| Pros | Cons |
+# Upside and Downside of Having A Cat
+| Pros                                                                             | Cons                                                                            |
+| -------------------------------------------------------------------------------- | ------------------------------------------------------------------------------- |
+| You have a companion as long as the cat lives.                                   | Cats can't pay rent and can't afford any of their own needs.                    |
+| You'll have a very peaceful morning because most cats are asleep during the day. | Get ready for them running and pushing things off counters and tables at 12 am. |
+| A cat's purring can reduce anxiety.                                              | Your pet may bite or scratch you when you try to pet it.                        |
+| They are independent as well as low maintenance.                                 | They act like you're living in THEIR house.                                     |
+| Cats make great apartment pets.                                                  | Cats are extremely lazy and most are aquaphobic.                                |
+
 # More Feeling!!!
 Cats are ==very expressive.== You can tell what your pet is feeling just through body langauge. The following are some examples:
 
