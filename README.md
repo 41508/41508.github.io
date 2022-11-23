@@ -39,6 +39,8 @@ Cats are very expressive. You can tell what your pet is feeling just through bod
 > If you taught the adults were enough of a handful, wait till you have kittens running around, meowing in the middle of the night 😄👍
         ![alt text](https://psychicblaze.com/wp-content/uploads/2022/04/1-kittens-indoors.jpg)
 <div class="tenor-gif-embed" data-postid="22987148" data-share-method="host" data-aspect-ratio="1.18081" data-width="100%"><a href="https://tenor.com/view/kitty-cat-kitty-cat-kitten-kitten-falling-gif-22987148">Kitty Cat GIF</a>from <a href="https://tenor.com/search/kitty-gifs">Kitty GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+<div class="tenor-gif-embed" data-postid="15917790" data-share-method="host" data-aspect-ratio="0.8" data-width="100%"><a href="https://tenor.com/view/cute-kitty-alex-kitty-best-kitty-who-u-gif-15917790">Cute Kitty Alex Kitty GIF</a>from <a href="https://tenor.com/search/cute+kitty-gifs">Cute Kitty GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+<div class="tenor-gif-embed" data-postid="25692939" data-share-method="host" data-aspect-ratio="1.73913" data-width="100%"><a href="https://tenor.com/view/kitten-cat-feerkyun-cat-cute-baby-cat-gif-25692939">Kitten Cat GIF</a>from <a href="https://tenor.com/search/kitten-gifs">Kitten GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
 
 Aren't they the cutest? 🥺
 
