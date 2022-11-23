@@ -38,6 +38,8 @@ Cats are very expressive. You can tell what your pet is feeling just through bod
 
 > If you taught the adults were enough of a handful, wait till you have kittens running around, meowing in the middle of the night 😄👍
         ![alt text](https://psychicblaze.com/wp-content/uploads/2022/04/1-kittens-indoors.jpg)
+<div class="tenor-gif-embed" data-postid="22987148" data-share-method="host" data-aspect-ratio="1.18081" data-width="100%"><a href="https://tenor.com/view/kitty-cat-kitty-cat-kitten-kitten-falling-gif-22987148">Kitty Cat GIF</a>from <a href="https://tenor.com/search/kitty-gifs">Kitty GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+
 Aren't they the cutest? 🥺
 
 For more GIFs of the small hairballs:
