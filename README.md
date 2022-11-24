@@ -23,7 +23,7 @@ Dedicated to that one time I got bit by one of my pet kittens ಥ_ಥ
 | Cats make great apartment pets.                                                  | Cats are extremely lazy and most are aquaphobic so good luck giving them a bath.|
 
 # More Feeling!!!
-Cats are ==very expressive.== You can tell what your pet is feeling just through body langauge. The following are some examples:
+Cats are very expressive. You can tell what your pet is feeling just through body langauge. The following are some examples:
 
 1. Nervous Cat 😨
 	![alt text](https://www.catsbest.eu/wp-content/uploads/katze-angst-e1607348248612.jpg)
