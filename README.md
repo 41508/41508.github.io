@@ -40,7 +40,7 @@ Cats are very expressive. You can tell what your pet is feeling just through bod
         ![alt text](https://www.pawtracks.com/wp-content/uploads/sites/2/2021/07/frightened-orange-tabby-cat.jpg?fit=1000%2C666&p=1)
 5. Scared Cat 😱
         ![alt text](https://www.zooplus.co.uk/magazine/wp-content/uploads/2019/06/Anxious-Cat.jpg)
-6. Digusted Cat 🤢
+6. Disgusted Cat 🤢
         ![alt text](https://hips.hearstapps.com/goodhousekeeping/assets/17/26/1498678312-gettyimages-138310605.jpg)
 7. Happy Cat 😊
         ![alt text](https://images.immediate.co.uk/production/volatile/sites/4/2018/12/GettyImages-918529586-35c7227.jpg?quality=45&crop=61px,468px,7710px,3317px&resize=960,413)
